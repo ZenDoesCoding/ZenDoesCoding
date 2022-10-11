@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ZenDoesCoding
+- 👀 I’m interested in learning C#
+- 📫 Reach me on Discord: COSMOZEN64363????#2123
