@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ZenDoesCoding
-- 👀 I’m interested in learning C#
-- 📫 Reach me on Discord: COSMOZEN64363????#2123
+- 👀 I’m interested in learning everything. All of it. I shall become the best coder this earth has witnessed. 
+- 📫 Reach me on Discord: X0X0X0X0X0X0X0#2123
