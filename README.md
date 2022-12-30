@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ZenDoesCoding
 - 👀 I’m interested in learning everything. All of it. I shall become the best coder this earth has witnessed. 
-- 📫 Reach me on Discord: X0X0X0X0X0X0X0#2123
+- 📫 Reach me on Discord: zen the explorer#2123
